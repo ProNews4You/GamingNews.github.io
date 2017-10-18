@@ -1,1 +1,1 @@
-# ProNews4You.github.io
+# GamingNews.github.io
